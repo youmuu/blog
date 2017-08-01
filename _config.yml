@@ -2,7 +2,7 @@
 title: Grajże, graju graj
 email: youremailaddress@gmail.com
 description: Nieudana i udawana poezja
-baseurl: "" # the subpath of your site, e.g. /blog
+baseurl: "/blog" # the subpath of your site, e.g. /blog
 url: "" # the base hostname & protocol for your site
 
 # Homepage tiles
