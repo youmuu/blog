@@ -18,7 +18,6 @@ jak słońca czarę, przez krew i przez wina
 przelewał zmierzch
 
 szepcząc przepraszam białym ramionom
-
 które wtedy dźwigały mój świat
 
 Jedno tylko słowo było mi tam dane
