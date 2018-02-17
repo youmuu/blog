@@ -3,7 +3,7 @@ layout: post
 title: Nic więcej
 ---
 
-Nic więcej ponad spotkanie spojrzeń
+Nic więcej ponad spotkanie spojrzeń 
 nic więcej ponad splątane dłonie
 Miną te oczy, odpłynie uścisk
 znikną gdzieś w dali znajome ramiona
