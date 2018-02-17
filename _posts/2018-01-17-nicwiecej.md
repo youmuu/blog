@@ -30,12 +30,8 @@ uważać na siebie i troszczyć się o kwiaty
 żyć więcej niż wspomnieniem twych dłoni i oczu
 więcej niż tęsknotą do smaku herbaty
 
----
-layout: post
-title: Dokąd zmierza wieczór
----
 
-Wieczór donikąd nie zmierza  
+Nic więcej ponad spotkanie spojrzeń  
 taszcząc się sennie i jakby od niechcenia  
 po firmamencie lipcowego boga,   
 boga słoneczników i lawendy, ulotnej rosy  
