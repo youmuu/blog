@@ -4,17 +4,11 @@ title: Nic więcej
 ---
 
 Nic więcej ponad spotkanie spojrzeń
-
 nic więcej ponad splątane dłonie
-
 Miną te oczy, odpłynie uścisk
-
 znikną gdzieś w dali znajome ramiona
-
 szkarłat będzie nam przypominać
-
 jak słońca czarę, przez krew i przez wina
-
 przelewał zmierzch
 
 szepcząc przepraszam białym ramionom
@@ -35,3 +29,58 @@ Pozostało mi tylko pamiętać
 uważać na siebie i troszczyć się o kwiaty
 żyć więcej niż wspomnieniem twych dłoni i oczu
 więcej niż tęsknotą do smaku herbaty
+
+---
+layout: post
+title: Dokąd zmierza wieczór
+---
+
+Wieczór donikąd nie zmierza  
+taszcząc się sennie i jakby od niechcenia  
+po firmamencie lipcowego boga,   
+boga słoneczników i lawendy, ulotnej rosy  
+i spływających warkoczy burz, przetaczających się gniewnie  
+a jednak równie ospale, co ten Wieczór, przez życie  
+nieuchwytnych nietoperzy, rzeszy szlachetnych pszczół  
+muszych perypetii i mrówczej arystokracji  
+Wieczór donikąd nie zmierza  
+dojrzewa razem z dzikim winem, potyka się o pośpiech  
+mąci taflę nieboskłonu purpurą swych snów na jawie  
+ale o czym może śnić Wieczór,  
+jeśli nie o zaczętych książkach i gazetach  
+przykrywających umęczone twarze śniące w bujanych fotelach  
+jeśli nie o tarasach i pustych szklankach  
+albo elektrycznych wiatrakach i ich mechanicznym rytmie  
+ulgi przeplatanej skwarem
+
+Wieczór donikąd się nie śpieszy  
+jest ojcem niedzieli  
+awatarem wieczności  
+I apogeum malarskiego talentu  
+zaklęty w geometrycznym układzie szkarłatnego cienia  
+albo pieniącym się na chmurach słońcu  
+Wieczór czyni nas nami, tak jak południe czyni pszenicę pszenicą  
+i jak północ czyni noc nocą  
+Wiele określa i określa go wiele  
+więcej niż drzemki, więcej niż dzikie wino, niż furkotanie nietoperzych skrzydeł  
+niż kolor czerwony, niebieski i czarny  
+Bo jest niebieski, niebieski i w równym stopniu ziemski  
+profanosacrum, sacrumiprofanum  
+Nietykalny, dotkliwy, uczuciowy, nieczuły  
+śni o nadchodzącej nocy  
+to wartownik na granicy nadziei
+
+Muzykę wieczoru słyszy się w trawach, łąkach i lasach  
+w westchnieniach odpoczywającego Boga  
+i jest ona kołysanką, jest ona obietnicą  
+utkaną ze zmarnowanych chwil beztroskiego lenistwa  
+których dług zaciąga u nas Wieczór  
+Melodia popołudnia niesie słowa pociechy, stąpa cicho  
+po łanach zbóż, opalonych plecach, zroszonych potem czołach  
+i piersiach unoszących się w rytm lekkiego snu
+
+Wieczór zawiera się w szklanych dzbankach bez wody  
+w których schną plastry cytryny i mięta  
+Wieczór jest koroną dwudziestu czterech godzin  
+które zamykają krąg wschodów i zachodów  
+słońca i losów
