@@ -4,13 +4,21 @@ title: Nic więcej
 ---
 
 Nic więcej ponad spotkanie spojrzeń
+
 nic więcej ponad splątane dłonie
+
 Miną te oczy, odpłynie uścisk
+
 znikną gdzieś w dali znajome ramiona
+
 szkarłat będzie nam przypominać
+
 jak słońca czarę, przez krew i przez wina
+
 przelewał zmierzch
+
 szepcząc przepraszam białym ramionom
+
 które wtedy dźwigały mój świat
 
 Jedno tylko słowo było mi tam dane
