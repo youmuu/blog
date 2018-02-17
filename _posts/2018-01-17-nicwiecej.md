@@ -10,7 +10,6 @@ znikną gdzieś w dali znajome ramiona
 szkarłat będzie nam przypominać   
 jak słońca czarę, przez krew i przez wina   
 przelewał zmierzch   
-   
 szepcząc przepraszam białym ramionom   
 które wtedy dźwigały mój świat   
    
