@@ -26,7 +26,7 @@ choć w ciasnych objęciach skręcają się żebra
 Z miłości do kwiatów chodzę wciąż boso   
 żądląc swe stopy o róż koniczyny   
 Z miłości do ciebie kaleczę wciąż dziąsła   
-potykając się o najprostsze “kocham”   
+potykając się o najprostsze wszak “kocham”   
 w którego sidła pcha mnie “zapomnij”   
    
 Teraz pozostało mi tylko pamiętać   
