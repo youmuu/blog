@@ -5,26 +5,31 @@ title: Nic więcej
 
 Nic więcej ponad spotkanie spojrzeń   
 nic więcej ponad splątane dłonie   
-Miną te oczy, odpłynie uścisk   
-znikną gdzieś w dali znajome ramiona   
-szkarłat będzie nam przypominać   
-jak słońca czarę, przez krew i przez wina   
+Miną te oczy, zbłękitnieje uścisk   
+rozpłyną się w złocie najczulsze nawet słowa   
+tylko szkarłat będzie nam przypominać   
+jak słońca czarę, przez krew i przez wino   
 przelewał zmierzch   
 szepcząc przepraszam białym ramionom   
 które wtedy dźwigały mój świat   
    
-Jedno tylko słowo było mi tam dane   
-kruche “zapomnij” w koniczynę splątane   
+Jedna tylko prośba ostała się we mnie -   
+przetrwało “zapomnij” w supłach z koniczyny   
 niedbale rzucone na pastwę pszenicy,   
 na pożarcie chabrom, makom i wyce   
-Wątpili, lecz wytrwałem. Upadłem, lecz żyję   
-uchowałem słowa od łez nieboskłonu.   
-Z miłości do kwiatów idę wciąż boso   
-z miłości do ciebie kaleczę wciąż dziąsła   
-potykając się o czułe jeszcze “kocham”   
+Mimo chwastów i ptactwa uchowałem te słowa   
+słoniąc je barkiem od łzy nieboskłonu   
+trzymam je blisko, wciąż kurczowo ściskam   
+choć zimne są schody przedsionka tego serca   
+choć w ciasnych objęciach skręcają się żebra   
+   
+Z miłości do kwiatów chodzę wciąż boso
+żądląc swe stopy o róż koniczyny
+Z miłości do ciebie kaleczę wciąż dziąsła   
+potykając się o najprostsze “kocham”   
 w którego sidła pcha mnie “zapomnij”   
    
-Pozostało mi tylko pamiętać   
+Teraz pozostało mi tylko pamiętać   
 uważać na siebie i troszczyć się o kwiaty   
-żyć więcej niż wspomnieniem twych dłoni i oczu   
-więcej niż tęsknotą do smaku herbaty   
+żyć więcej niż wspomnieniem tych dłoni i oczu   
+więcej niż tęsknotą do smaku twej herbaty   
