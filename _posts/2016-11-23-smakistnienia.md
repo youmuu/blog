@@ -3,33 +3,32 @@ layout: post
 title: Smak istnienia
 ---
 
-Na granicy nieznajomości 
-majaczą ludzie, opatuleni w tajemnice  
-pełni dystansu, wyćwiczeni w samotności  
-pachnący podwórzem we wszystkich jego postaciach
-
-Znam was, podziwiam  
-te buty cicho stąpające po gwiazdach  
-i obłokach, i szczytach, i marzeniach  
-rąbek płaszcza skropiony księżycowym pyłem  
-Znam gwiazdozbiory tych oczu skrytych w mgławicach  
-liczbę lat świetlnych między naszymi duszami  
-za którą ciągną się łańcuchy potęg
- 
-Tajemne ścieżki sztuki wielomianów     
-i ich wijąca się funkcja doświadczeń od czasu   
-Cieniste aleje niewymiernego szaleństwa   
-skryte pod łukami strzelistych kwadratów   
-Tymi drogami chadza Boży Zamysł  
-przelewając serca w kosmiczne naczynie   
-nadprzestrzennego portalu łaski   
+Nieskalani dotąd brzaskiem znajomości   
+ukryci poza zamkami ptasich kluczy   
+są ludzie wyćwiczeni w samotności   
+Podziwiam ich Hermesowy trzepot, przetarte buty   
+kroczące po obłokach, po cienistych alejach   
+urojonej dziedziny   
+skrytej pod łukami strzelistych kwadratów   
    
-Tam spotkamy się poza granicą myśli    
-tuż przed horyzontem zupełnej obcości   
-stojąc w deszczu gasnących gwiazd   
-utopionych w studni nieskończonego nieboskłonu   
-    
-I dopiero tam, po ciemnej stronie Słońca     
-gdy wyschnie i zmarznie piękno wszechświata   
-wreszcie zaznamy gorzkich rozkoszy   
-smaku minionego istnienia   
+Przelane są serca w kosmiczne naczynie   
+nadprzestrzennego portalu łaski   
+gdzie utopione są jednocześnie   
+gwiezdnych ogni migotanie,   
+tajemne ścieżki wielomianów,   
+i pojedynczego człowieka istnienie   
+   
+Poukrywane są w mgławicy kapeluszy   
+oczy. I ukryte za ich błękitem   
+gwiazdozbiory, i szumiąca krew   
+pomieszana z mlekiem   
+na roztrzęsionych palcach każdego stwórcy,   
+na skutych grozą ustach -   
+jakże straszna jest liczba   
+lat świetlnych między nami   
+jak ciężko kołacze łańcuch jej potęg   
+   
+Ale kiedyś się jeszcze spotkamy,   
+wspólnie będziemy wspominać   
+co było nam dane, i jakie imiona   
+wiatru, kwiatów, ludzi poznałem   
