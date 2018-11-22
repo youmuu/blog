@@ -3,26 +3,27 @@ layout: post
 title: Sangwinik
 ---
 
-Nawet nie wiem, kiedy wysch³y
-koryta tych naczyñ, kiedy
-wytoczono ¿elazo ze szpiku i wyssano
-do resztek wapñ. ¯eby pokryæ koœcian¹ biel¹
-te œciany i te meble. Urz¹dziæ pokój na szpitalne mauzoleum
-Wiêc powiedz, dlaczego i jak
-Zosta³em znaleziony, skoro ju¿ jedn¹ nog¹ sta³em
-W otwartym progu ziemianego sepulchre
-
-Szkieletowe palce - a w nich - Nie wiem
-i nie chcê wiedzieæ, które to niebiosa
-Zaklêto w porcelanê fili¿anek
-Albo w powieki pawich oczu i chiñskie wierzby
-Wiêdn¹ce na brzegach jakiegoœ Styksu
-
-Nawet nie wiem, kiedy
-Porwa³ mnie nurt wody po kostki
-Dumnej, ¿e szumi poœród mroŸnej pustki
-Dumnej, ¿e na ga³êziach skrêconych papilariów
-Wisz¹ wysoko owoce epoki. Dzieciê Aokigahary
-Obarczone wy³¹czn¹ win¹ za mi³oœæ
-Albo jej brak, ale czy jest miêdzy nimi ró¿nica
-Nie wiem
+Nawet nie wiem, kiedy wyschÅ‚y 
+koryta tych naczyÅ„, kiedy 
+wytoczono Å¼elazo ze szpiku i wyssano 
+do resztek wapÅ„. Å»eby pokryÄ‡ koÅ›cianÄ… bielÄ… 
+te Å›ciany i te meble. UrzÄ…dziÄ‡ pokÃ³j na szpitalne mauzoleum 
+WiÄ™c powiedz, dlaczego i jak 
+ZostaÅ‚em znaleziony, skoro juÅ¼ jednÄ… nogÄ… staÅ‚em 
+W otwartym progu ziemianego sepulchre 
+ 
+Szkieletowe palce - a w nich - Nie wiem 
+i nie chcÄ™ wiedzieÄ‡, ktÃ³re to niebiosa 
+ZaklÄ™to w porcelanÄ™ filiÅ¼anek 
+Albo w powieki pawich oczu i chiÅ„skie wierzby 
+WiÄ™dnÄ…ce na brzegach jakiegoÅ› Styksu 
+ 
+Nawet nie wiem, kiedy 
+PorwaÅ‚ mnie nurt wody po kostki 
+Dumnej, Å¼e szumi poÅ›rÃ³d mroÅºnej pustki 
+Dumnej, Å¼e na gaÅ‚Ä™ziach skrÄ™conych papilariÃ³w 
+WiszÄ… wysoko owoce epoki. DzieciÄ™ Aokigahary 
+Obarczone wyÅ‚Ä…cznÄ… winÄ… za miÅ‚oÅ›Ä‡ 
+Albo jej brak, ale czy jest miÄ™dzy nimi rÃ³Å¼nica 
+Nie wiem 
+ 
